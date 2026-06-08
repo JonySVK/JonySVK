@@ -1,4 +1,4 @@
-# Hi, I'm Jan 👋
+# Hi, I'm Ján 👋
 ### **🎓 Student. 🚀 Leader. 🎨 Creator. 🎤 Event Organizer. 🧑‍💻 Developer. 🔥 Youth Leader.**</p>
 
 ---
