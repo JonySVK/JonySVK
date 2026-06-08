@@ -52,3 +52,10 @@ Some of my achievements include:
 If I had to describe myself in one sentence, I'd say that I enjoy connecting technology, creativity, education, and people to build projects that make a real difference.
 
 I don't want to simply observe the world around me — I want to actively shape it and leave it a little better than I found it. ✨
+
+## 📫 Let's Connect
+
+Feel free to reach out if you'd like to collaborate, discuss ideas, or simply say hi!
+
+📧 ivicic.dev@gmail.com
+
