@@ -20,7 +20,7 @@ What fascinates me most is combining technology, creativity, and teamwork into p
 
 ## 🌿 Leadership
 
-For the past four years, I've been serving as the student leader of the **Green School Committee** at my school. Together with an amazing team, we've organized environmental projects and initiatives that improve both our school and the surrounding community.
+For the past four years, I've been serving as the student leader of the **Eco School Committee** at my school. Together with an amazing team, we've organized environmental projects and initiatives that improve both our school and the surrounding community.
 
 One of our highlights was being invited to speak at the **ZA zelený KRAJ Festival** in Žilina, where we participated in a panel discussion about sustainable transportation and presented our projects.
 
